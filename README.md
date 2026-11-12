@@ -4,4 +4,4 @@ A seasoned Senior Software Engineer and Software Architect with over 15 years of
 
 Find me and contact on https://www.linkedin.com/in/alexeylunkov/
 
-Read https://dev.to/alex-53-8
+Read https://dev.to/rootmach
